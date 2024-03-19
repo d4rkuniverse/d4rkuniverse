@@ -2,7 +2,7 @@
 - 👀 I’m interested in medicine
 - 🌱 I’m currently learning to love myself
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ins: ibrisimovicee
+- 📫 How to reach me insta: ibrisimovicee
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i love chickens
 
